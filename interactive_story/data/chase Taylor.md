@@ -1,0 +1,1 @@
+Bai marries Taylor, however, he spend few time on soccer training. He is fired before long, however Bai and Taylor still have enough influence in the world. Bai, the most gifted Chinese soccer player. Taylor, the most popular singer. Bai has a very colorful life in remainning years.

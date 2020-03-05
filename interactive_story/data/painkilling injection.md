@@ -1,0 +1,1 @@
+Bai takes painkilling injection, his beautiful dribbling makes opponent nervous. China wins the trophy, but Bai cannot play professional game anymore due to feet hurt, however, he becomes the hero of China
